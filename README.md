@@ -1,4 +1,4 @@
-Team Information:
+Team Information: Q-Soronko team
 
 Team Member 1:
 
